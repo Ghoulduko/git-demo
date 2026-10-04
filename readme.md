@@ -1,0 +1,1 @@
+aq aris istoria dinozavrze, orangutangze, da chemze roca mshioda.
